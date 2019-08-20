@@ -1,2 +1,2 @@
 # martexcoin-accept-here
-MarteX accepted here
+MarteX coin  - Accepted Here - art
